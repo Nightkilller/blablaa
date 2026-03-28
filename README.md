@@ -1,2 +1,2 @@
 # blablaa
-aditya loves GTA
+aditya loves GT
